@@ -4,7 +4,7 @@
 - 🎌 make programs and programs || now look at these  symbols
 - 🃏 🀄🎴♣️♦️♥️♠️
 - 🎌 the end unbad bye
-- 🗾 japan yes that is a reel emoji
+- 🗾 japan yes that is a real emoji
 
 <!---
 FatYellowDucky/FatYellowDucky is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
